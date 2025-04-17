@@ -5,7 +5,7 @@
 
 **ВАЖНО: чтобы активировать бонусы и начать игру, после регистрации нужно внести депозит от 1000 рублей!**
 
-[[ARKADA CASINO РЕГИСТРАЦИЯ С БОНУСАМИ СЕГОДНЯ](https://linkcasino.ru/arkada_e100)
+**[ARKADA CASINO РЕГИСТРАЦИЯ С БОНУСАМИ СЕГОДНЯ](https://linkcasino.ru/arkada_e100)**
 
 ![image](https://github.com/user-attachments/assets/be04c63a-f09f-4ed6-8ca3-7f9f3681709e)
 
